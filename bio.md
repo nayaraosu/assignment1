@@ -1,4 +1,8 @@
+Biography
+
 Name: Ashok Nayar
+
+Birthday: January 23rd
 
 Where I live: Claremont, CA (about an hour east of downtown Los Angeles)
 
